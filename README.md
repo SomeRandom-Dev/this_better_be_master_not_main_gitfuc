@@ -1,11 +1,7 @@
-# this_better_be_master_not_main_gitfuc
-
-is it master
-
-
+# this_better_be_master_not_main_
 or did you idiots change it
 
 
 
 # it's main
-# what the fk
+# what the 
